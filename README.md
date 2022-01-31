@@ -1,2 +1,0 @@
-# chucmungnammoi.github.io
-happynewyear
